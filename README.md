@@ -1,1 +1,0 @@
-# voidq.github.io
